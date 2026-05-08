@@ -1,4 +1,4 @@
-
+Get the ultimate Todoist for Windows plugin with smart Plugin for Todoist for Windows - calendar-view and filters. Featuring calendar-view and filters, it's the best choice for
 
 
 
